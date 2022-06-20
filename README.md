@@ -4,6 +4,3 @@
 **I LIKE TO DO HARD THINGS**
 
 **Added Proof**
-
-
-
